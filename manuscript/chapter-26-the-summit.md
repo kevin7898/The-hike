@@ -174,7 +174,7 @@ Kevin looked at her, mouth open, breathing hard.
 
 She reached for him. "Pants off."
 
-He obeyed so quickly that the competence almost made her laugh again. Then he was naked over her in daylight, cock hard and flushed against his stomach, and the laugh disappeared completely.
+He obeyed so quickly that the competence almost made her laugh again. Then he was naked over her in daylight, and the laugh disappeared completely. Daylight made the details impossible to soften: his cock hard and flushed against his stomach, average-sized, uncut, the shaft and balls shaved clean, human rather than impossible, which somehow made the wanting sharper instead of smaller.
 
 The condom packet sat within reach because he had put it there.
 
@@ -200,9 +200,9 @@ Kevin smiled against her mouth.
 
 She hooked one leg around his hip and drew him closer.
 
-He entered her slower than she wanted and exactly as slowly as her body needed. The night before had left its trace. So had morning. So had the climb. Kelsey felt the stretch deeper in daylight, felt every inch of him as he pushed in, paused, withdrew slightly, and returned. Her hands gripped his shoulders. His skin was hot from sun and exertion.
+He entered her slower than she wanted and exactly as slowly as her body needed. The night before had left its trace. So had morning. So had the climb. Kelsey felt him more vividly in daylight, each slow push and pause made sharper by tenderness, exposure, and the fact that she could see his face while he held back. Her hands gripped his shoulders. His skin was hot from sun and exertion.
 
-When he was fully inside, she closed her eyes.
+When he was settled inside her, she closed her eyes.
 
 Kevin's mouth touched her cheek.
 
@@ -262,7 +262,7 @@ She locked her legs around him.
 
 The word hit him harder than a command. Kelsey felt it in the way his whole body tightened, in the breath that left him rough against her throat, in the sudden loss of the careful rhythm he had been using to keep himself from taking more than she could meet.
 
-He drove into her deep and came with his face buried against her neck, body shaking, cock pulsing while Kelsey held him there and felt the hot mess of him spill into her again. This time she knew enough to feel the aftermath immediately: the slick fullness, the slow leak when he softened, the undeniable physical fact that would require wipes and care and would make Sam's questions later impossible to answer politely.
+He drove into her deep and came with his face buried against her neck, body shaking, cock pulsing while Kelsey held him there and felt the hot mess of him spill into her again. This time she knew enough to feel the aftermath immediately: the slick heat, the slow leak when he softened, the undeniable physical fact that would require wipes and care and would make Sam's questions later impossible to answer politely.
 
 Kevin stayed over her until his arms started to shake.
 
@@ -286,21 +286,29 @@ She covered her face with one hand. "Do not look like you are about to become us
 
 "That is exactly the problem."
 
-He smiled, then reached for the packet without making her ask. The small domestic competence of it should not have been erotic after what they had just done. It was anyway. Kevin braced himself on one elbow, opened the packet with his teeth when one hand failed, and handed her a wipe first.
+He smiled, then reached for the packet without making her ask. The small domestic competence of it should not have been erotic after what they had just done. It was anyway. Kevin braced himself on one elbow, opened the packet with his teeth when one hand failed, and pulled a wipe free.
 
-Kelsey took it, then hesitated.
+Kelsey reached for it out of habit.
 
-There was no graceful way to clean cum from between her legs on a mountain blanket while the man who had put it there lay naked beside her with one hand still shaking.
+Kevin did not hand it over immediately.
 
-Kevin did not pretend otherwise.
+There was no graceful way to clean cum from between her legs on a mountain blanket while the man who had put it there lay naked beside her with one hand still shaking. There was also no reason, suddenly, for her to pretend she needed privacy from the aftermath of what she had chosen in full daylight.
 
-"Want me to turn around?"
+She let her hand fall back to the blanket.
 
-She looked at him through her fingers. "No."
+Kevin read that before she found words. He shifted closer, careful of the sore places he had already learned, and brought the wipe between her thighs himself. The first touch made her inhale sharply. He stopped there, not asking, just waiting with his eyes on her face until her knees eased open again.
 
-The answer surprised her less than it should have.
+Then he cleaned her.
 
-She cleaned herself enough to stop the slow slide, wincing once where she was tender. Kevin saw the wince and did not make a speech out of it. He only passed her water, then another wipe, then used one on his own stomach and cock with a hiss when oversensitivity caught up to him.
+Not clinically. Not like he was erasing evidence. He wiped the slow spill from swollen skin with a gentleness that made her throat tighten, folding the wipe to a clean side before touching her again. Kelsey kept one hand over her eyes and the other fisted in the blanket while he worked, embarrassed and turned on and touched so deeply by the care of it that she did not know which feeling belonged on top.
+
+"You packed wipes up a mountain for this?" she said, voice unsteady.
+
+"For afterward," he said.
+
+That was worse.
+
+He passed her water, then used another wipe on his own stomach and cock with a hiss when oversensitivity caught up to him.
 
 "Good?" she asked.
 
@@ -340,7 +348,7 @@ Kelsey turned her head and looked at the small pillow beneath her hip.
 
 They both laughed then, soft and exhausted.
 
-Cleanup was careful because the place deserved respect and because bodies required tending. Wipes, water, checking the blanket for any mess, giving Kelsey time to sit up slowly when soreness returned with gravity. Kevin helped her dress only when she asked, holding her leggings open at the ankle so she could step in without wobbling.
+The rest of cleanup stayed careful because the place deserved respect and because bodies required tending. Wipes, water, checking the blanket for any mess, giving Kelsey time to sit up slowly when soreness returned with gravity. Kevin helped her dress only when she asked, holding her leggings open at the ankle so she could step in without wobbling.
 
 "This is not dignified," she said.
 

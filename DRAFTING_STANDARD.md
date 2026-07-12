@@ -88,6 +88,10 @@ Include:
 
 Do not make every explicit scene the same kind of escalation. Use different engines: restraint, discovery, urgency, teasing, tenderness, mess, exhaustion, aftercare, or emotional confession.
 
+## Kevin Body Continuity
+
+Kevin is average-sized, uncut, and keeps his shaft and balls shaved. Do not describe him as huge, monster-sized, or anatomically exaggerated. The intensity should come from trust, context, arousal, skill, and the emotional stakes rather than size.
+
 ## Detail-Forward Explicit Protocol
 
 Assistant-authored manuscript files should draft most intimate detail directly on the page instead of outsourcing the scene to local expansion. This includes buildup, undressing, tactile body detail, active consent, escalating touch, bodily reaction, dialogue, emotional shifts, mess, cleanup, soreness, aftercare, and the consequences of what changed between the characters.

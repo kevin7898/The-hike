@@ -320,7 +320,7 @@ Sam wrapped her legs around him.
 
 "Inside," she said.
 
-He pushed in slow at first, then all at once when her body took him and her nails dug into his back. The fullness made her eyes close. Kevin stayed there, buried, forehead against hers, both of them breathing through the first deep pulse of it.
+He pushed in slow at first, then all at once when her body welcomed him and her nails dug into his back. The closeness made her eyes close. Kevin stayed there, buried, forehead against hers, both of them breathing through the first deep pulse of it.
 
 "Mine?" he asked, voice rough.
 

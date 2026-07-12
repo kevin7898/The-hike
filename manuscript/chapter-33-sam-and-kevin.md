@@ -368,7 +368,7 @@ There was no condom question here because this was their baseline, their bed, th
 
 Home.
 
-The word came uninvited and too sentimental, but there was nothing sentimental about the way her body took him. She was wet from his mouth, sensitive from the orgasm, still tight enough that the first deep thrust made both of them groan. Kevin held himself over her, shaking.
+The word came uninvited and too sentimental, but there was nothing sentimental about the way her body welcomed him. She was wet from his mouth, sensitive from the orgasm, keyed up enough that the first deep thrust made both of them groan. Kevin held himself over her, shaking.
 
 Sam wrapped her legs around his waist.
 

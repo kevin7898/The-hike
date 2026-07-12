@@ -218,7 +218,7 @@ The tent took it and gave it back to them in breath and nylon and the soft squea
 
 He knew that tone. Not stop. Not yet.
 
-He gave her two fingers then, slow and careful, curling only after her body accepted the stretch. Kelsey pushed into his hand with a frustration that made him press his forearm across her hips.
+He gave her two fingers then, slow and careful, curling only after her body accepted the pressure. Kelsey pushed into his hand with a frustration that made him press his forearm across her hips.
 
 "If you tell me to relax, I am throwing you into the lake," she said.
 
@@ -248,7 +248,7 @@ Kelsey took his wrists and moved them to her hips.
 
 He held.
 
-She guided him into her herself, one hand around his cock, the other braced on his chest. The first slide down made her breath catch. Tenderness flared, then softened into fullness when she paused and let her body adjust. Kevin's hands stayed steady at her hips, not pulling, not rushing.
+She guided him into her herself, one hand around his cock, the other braced on his chest. The first slide down made her breath catch. Tenderness flared, then softened into closeness when she paused and let the angle settle. Kevin's hands stayed steady at her hips, not pulling, not rushing.
 
 She moved when she was ready.
 

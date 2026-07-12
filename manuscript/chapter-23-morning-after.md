@@ -156,7 +156,7 @@ He did it again.
 
 That time it was not a warning.
 
-He settled into the rhythm her body gave him. Softer when her thighs trembled too quickly. Firmer when she pushed into his mouth. He used fingers only when she dragged one heel down his back and lifted her hips with a frustration that was not pain. The first slide of one finger into her made her gasp, tender from the night before but wet enough to take him. He paused there, mouth still working, until her body loosened and pulled him deeper.
+He settled into the rhythm her body gave him. Softer when her thighs trembled too quickly. Firmer when she pushed into his mouth. He used fingers only when she dragged one heel down his back and lifted her hips with a frustration that was not pain. The first slide of one finger into her made her gasp, tender from the night before but wet enough to welcome the pressure. He paused there, mouth still working, until her body loosened and pulled him deeper.
 
 The tenderness gave him a map.
 
