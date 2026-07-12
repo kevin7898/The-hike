@@ -128,19 +128,7 @@ His face changed at the last part.
 
 Only then did he kiss her again.
 
-The first push of him inside her was not graceful enough for fantasy. It was careful, interrupted by breath, by Kelsey telling him to wait, by him holding still while her body adjusted and her fingers dug into the back of his shoulder. It hurt a little. It felt good more than a little. It felt emotionally enormous in a way that had nothing to do with romance and everything to do with being allowed to want and choose and be met carefully inside that want.
-
-Kevin kept his forehead near hers.
-
-"Look at me," he said once, not commanding, asking for the contact.
-
-She did, and the intensity nearly made her turn away again.
-
-He stayed slow until she moved under him with intention. Until her hips asked before her mouth did. Until the pressure became rhythm and the rhythm became something her body trusted enough to chase.
-
-After that, she was less quiet.
-
-The tent held every sound too close: breath, nylon, the small helpless noises she made when he found the angle that worked, Kevin saying her name like it cost him, Kelsey laughing once because the lantern tipped and made their shadows ridiculous, then gasping because he used the moment to shift his hand and she lost the thread of humour completely.
+The tent held every sound too close: breath, nylon, the wet shift of his hand between her thighs, Kevin saying her name like it cost him, Kelsey laughing once because the lantern tipped and made their shadows ridiculous, then gasping because he used the moment to move lower and she lost the thread of humour completely.
 
 He kept learning by touch.
 
@@ -170,9 +158,17 @@ Because she wanted to hear herself say it while holding him.
 
 Kevin kissed her with a sound that was almost pain. His fingers slid back between her thighs, slicking through the wet he had already pulled from her, then deeper, careful but no longer timid. Kelsey arched under him. The tent wall brushed her shoulder. Her foot knocked the water bottle, sending it rolling into the corner, and neither of them cared.
 
-He made her come once before he entered her.
+He made her come once before he entered her, and the first time was not elegant.
 
-Not neatly. Not silently. She came with his fingers inside her and his mouth on her breast, one hand clamped over her own mouth until Kevin caught her wrist and pulled it away.
+It started with his fingers learning the wet heat of her in careful passes, not pushing inside too soon, not treating slickness as permission to rush. He stroked through her folds until his fingertips shone in the lantern light and Kelsey stopped kissing him because she needed all her breath for the next touch. When he found the place that made her hips twitch, he did not stay there like a man proud of discovery. He circled away, returned softer, then pressed again when her thighs opened wider.
+
+That was the difference she felt everywhere.
+
+He did not make her manage him.
+
+Kevin lowered his mouth to her breast while his hand kept moving between her legs. His tongue drew slowly over one nipple, then his teeth closed with just enough pressure to make her grip his shoulder. The sound she made embarrassed her immediately. She clamped one hand over her mouth before the next one could follow.
+
+Kevin caught her wrist and pulled it away.
 
 "Let me hear you," he said.
 
@@ -180,7 +176,25 @@ She shook her head, embarrassed even while her hips kept rocking against his han
 
 He kissed her palm. "Just me."
 
-That was what broke the last of her control. Her body tightened around his fingers, pleasure flashing hot and sudden after so much careful build. She cried out into the small tent, not loud enough for the mountain, too loud for the version of herself that had thought she would stay composed. Kevin held her through it, his other hand firm at her hip, grounding every tremor until she was gasping and laughing and nearly angry at him for being right about what she needed.
+His fingers slid inside her as he said it.
+
+One first, then the second only after her body took the stretch and pulled around him. Kelsey felt the intrusion and the relief of it in the same breath. His palm ground lightly against her clit with each slow pump, wet skin against wet skin, and his mouth stayed at her breast until sensation began folding over itself. Inside, his fingers curled with tentative pressure, found the spot that made her whole stomach tighten, then repeated it with enough confidence that she could not pretend she was only reacting to surprise.
+
+"There," she gasped.
+
+He stayed there.
+
+Not harder. Not faster.
+
+There.
+
+The pleasure built in tight, humiliating pulses. Her body clenched around his fingers before the orgasm arrived, warning both of them. Kevin read it and held her hip down because she had started to twist away from the intensity even while chasing it. The restraint of his hand made her go hotter. Safer. More trapped by what she wanted than by him.
+
+"Kev," she said, and it came out broken.
+
+He did not answer.
+
+His mouth closed around her nipple again, his fingers pressed up inside her, and the orgasm hit with a suddenness that made her cry out into the small tent, not loud enough for the mountain, too loud for the version of herself that had thought she would stay composed. Her cunt tightened hard around his fingers in repeated contractions, slicking his hand, pulling him deeper even as her thighs shook around his wrist. Kevin held her through it, his other hand firm at her hip, grounding every tremor until she was gasping and laughing and nearly angry at him for being right about what she needed.
 
 "Smug and I murder you," she said.
 
@@ -268,7 +282,31 @@ She tightened her legs around him instead of dignifying that with a speech.
 
 He understood.
 
-Kevin came with a broken sound, hips pressed tight to hers, cock pulsing deep inside her while his hand fisted in the quilt near her head. Kelsey held him there and felt every hot spill of him as something chosen, filthy, intimate, and impossible to pretend away. Her body fluttered around him in small exhausted aftershocks until he had to breathe through his teeth and laugh once like he might otherwise collapse.
+Kevin came with a broken sound, hips pressed tight to hers, cock pulsing deep inside her while his hand fisted in the quilt near her head. Kelsey held him there and felt every hot spill of him as something chosen, filthy, intimate, and impossible to pretend away. The first pulse made his whole body go rigid. The next came with a rough exhale against her neck. Each one landed deep, heat spreading where there had only been friction and fullness a second before.
+
+Her body answered without permission from her pride.
+
+She tightened around him again, softer this time but unmistakable, small exhausted contractions that seemed to draw the last of his release from him. Kevin shuddered through them, oversensitive and still buried, and Kelsey felt the change from thrusting to aftermath: his cock no longer driving into her, only throbbing, emptying, then slowly softening in the wet mess they had made together.
+
+When he shifted by accident, the first slick leak slipped around him.
+
+Kelsey felt it and went still.
+
+Not alarmed.
+
+Aware.
+
+The no-condom choice had not been an idea after all. It was this: him still inside her, her thighs damp, the tent smelling of sweat and sex, his cum beginning to slip out because bodies did not keep secrets as neatly as people tried to.
+
+Kevin felt the stillness and lifted his head.
+
+She touched his cheek before he could ask.
+
+"I know," she whispered.
+
+His forehead touched hers.
+
+He stayed buried until his arms started to tremble and she shifted her hips with a tiny wince that told him the next part mattered too.
 
 "Too much?" she murmured.
 
@@ -358,6 +396,12 @@ His hand stilled, then relaxed.
 
 "Yes."
 
-That was enough for the first night.
+That had to be enough for the first night, not because the wanting was finished but because their bodies were. Kelsey could still feel him everywhere: the stretch fading into soreness, the tender places between her thighs, the slow warmth left behind even after the wipes and the shirt and the quilt. The tent had become too small for denial. It held their damp clothes, their uneven breathing, the smell of skin and lake air and sex, and the strange quiet after doing something that could not be made theoretical again.
+
+Kevin's thumb moved once at her waist.
+
+She let it.
+
+That small permission felt almost as intimate as everything before it.
 
 Outside, the lake moved against the rocks in the dark. Inside the small tent, Kelsey listened to Kevin breathe and let the truth settle into her body without making it smaller than it was.

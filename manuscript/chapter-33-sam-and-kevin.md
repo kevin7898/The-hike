@@ -408,9 +408,9 @@ Her eyes burned.
 
 "Shut up and fuck me."
 
-He laughed, then did exactly that.
+He laughed, then did exactly that, giving her the force she had asked for without losing the map of her. The first hard thrust pushed a sound out of her that was half sob, half laugh. The second drove her higher on the bed until she had to hook one hand around the edge of the headboard. Kevin caught her hip and pulled her back down onto him, not gentle, not careless, exactly the balance she needed.
 
-The rhythm turned rougher. Sam met him stroke for stroke, using the strength in her legs, the tilt of her hips, the old knowledge of how to make him lose language. Kevin's face changed when she did it. She loved that face. Loved the familiarity of it. Loved that Kelsey could have newness and Sam could still have this: the exact moment his careful mind surrendered because Sam knew where to put her body under his.
+The rhythm turned rougher. Sam met him stroke for stroke, using the strength in her legs, the tilt of her hips, the old knowledge of how to make him lose language. When she rolled up into him at the end of a thrust, his eyes went unfocused. When she tightened around him and whispered his name like an accusation, his mouth opened and no answer came out. She loved that face. Loved the familiarity of it. Loved that Kelsey could have newness and Sam could still have this: the exact moment his careful mind surrendered because Sam knew where to put her body under his.
 
 "You feel like home," he said, voice broken.
 
@@ -428,6 +428,8 @@ His hand slid between them, thumb finding her again. Sam was too sensitive, then
 
 Her second orgasm built slower, deeper, tied to every contradiction she had brought into the room. Jealous. Aroused. Angry. Proud. Loved. Still primary. Still scared. Kevin's cock moved inside her, his hand worked her, his mouth stayed near her ear, and Sam let all of it exist without choosing one feeling to be the respectable one.
 
+It gathered in pieces. The drag of him inside her. The pressure of his thumb. The weight of his breath when he stopped being able to keep it even. The sting where her nails had already marked his shoulder. Sam felt the old bed under her, the old sheets against her back, the new reality between them refusing to be cleaned up into something tidy. Her body did not care which feeling was morally easiest. It took all of them and turned them into heat.
+
 "Come with me," she said.
 
 Kevin shook his head once, close but holding back.
@@ -436,7 +438,9 @@ Sam bit his shoulder. "Now."
 
 He broke.
 
-They came together messily, imperfectly, Sam first by half a breath and Kevin following because her body pulled him over. He buried himself deep and came inside her with a sound that made her hold him tighter. Heat spread through her, familiar and intimate, no barrier, no distance, the reclaiming not of property but of return.
+Sam felt the break before she heard it. His hips lost their rhythm, then found one final rough drive into her. Her orgasm hit at the same time, not perfectly, not prettily, but close enough that his release became part of hers. She came first by half a breath, clenching around him, pulling him over because her body knew him too well to let him stay apart from it.
+
+Kevin buried himself deep and came inside her with a sound that made her hold him tighter. Heat spread through her, familiar and intimate, no barrier, no distance, the reclaiming not of property but of return. He pulsed in her while she shook under him, and Sam kept her legs locked because she wanted every messy second of it before language came back and made them complicated again.
 
 Sam cried then.
 

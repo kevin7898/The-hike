@@ -158,6 +158,50 @@ That time it was not a warning.
 
 He settled into the rhythm her body gave him. Softer when her thighs trembled too quickly. Firmer when she pushed into his mouth. He used fingers only when she dragged one heel down his back and lifted her hips with a frustration that was not pain. The first slide of one finger into her made her gasp, tender from the night before but wet enough to take him. He paused there, mouth still working, until her body loosened and pulled him deeper.
 
+The tenderness gave him a map.
+
+Too direct and her thighs tightened for the wrong reason. Too shallow and she made a small frustrated sound into the back of her hand before remembering not to hide. When he curled his finger and pressed upward, her whole body answered, not with a word but with a sudden arch that drove her against his mouth. Kevin held the angle and slowed everything else down. Tongue steady. Finger still. His other hand spread over her hip to keep her from sliding away on the sleeping pad.
+
+Kelsey hated how much the stillness worked.
+
+Movement had let her pretend she was reacting to him. Stillness made her feel herself.
+
+His mouth sealed around her clit with a soft suction that did not hurt, and his finger pressed inside her just enough to make the pressure connect. Her breath caught. Then held. Then broke all at once.
+
+"Oh," she said, the word humiliatingly small.
+
+Kevin did not laugh this time.
+
+He repeated the exact pressure.
+
+Her hips lifted.
+
+He followed without losing contact, forearm sliding under her thigh, hand flattening over her stomach to hold her where the pleasure wanted her. Kelsey could feel his hair against the inside of her leg, the roughness of his morning stubble against sensitive skin, the wet heat of his mouth and the slick pull of his finger as her body gave him more than she was ready to admit.
+
+She looked down once.
+
+That was a mistake.
+
+Kevin's face was between her thighs in full daylight, eyes half-lidded, mouth wet from her, one hand holding her open with the quiet competence she had started to associate with every dangerous thing. He looked less like a man performing and more like a man studying something he intended to remember.
+
+The sight made her clench around his finger.
+
+He felt it.
+
+His eyes lifted.
+
+Kelsey let her head fall back. "Do not look proud."
+
+He answered by licking her again, slower, under the edge of the hood where the sensation turned almost too sharp.
+
+"Kevin."
+
+He eased off by a fraction.
+
+Perfect.
+
+The correction without apology made her want to cry and come and laugh at the same time.
+
 Kelsey had thought morning would make her quieter.
 
 Instead daylight made every sound more humiliating and more necessary. She heard herself panting. Heard the wet, intimate sounds of his mouth on her. Heard the sleeping pad complain beneath her hips when she started moving despite all her intentions to be dignified.

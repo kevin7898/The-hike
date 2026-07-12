@@ -102,29 +102,13 @@ Kevin crossed the blanket and kissed her standing.
 
 The summit made everything feel exposed and held at once. His hands were warm from the climb, roughened by rock. They moved over her back, her ribs, her hips, learning what daylight changed. Kelsey answered with her own hands under his shirt, pushing it up until he took it off and tossed it near the pack.
 
-They went to the blanket laughing once because knees and boots and sloped rock required negotiation. Then laughter gave way.
+They went to the blanket laughing once because knees and boots and sloped rock required negotiation.
 
-Kevin did not start where the night had ended. He kissed her like this version of her needed to be asked anew. Mouth, throat, sternum, the curve of her breast, the salt of her skin from the climb. Kelsey arched into the sun and wind and his mouth, one hand in his hair, the other braced on warm rock beyond the blanket.
+Then laughter gave way.
+
+Kevin did not start where the night had ended. He kissed her like this version of her needed to be learned again, not assumed from the dark. Mouth, throat, sternum, the curve of her breast, the salt of her skin from the climb. Kelsey arched into the sun and wind and his mouth, one hand in his hair, the other braced on warm rock beyond the blanket.
 
 She was not quiet this time because there was no tent to hold the sound. That should have frightened her. Instead, the wind took each breath and made it part of the place.
-
-When they came together, it was with less uncertainty and more consequence. Her body still needed care; soreness from the night made some angles too sharp, and she told him so without shame. He adjusted, used his hand and mouth and patience until wanting overrode hesitation again. The no-condom choice was not re-assumed. He asked with his body paused above hers and the packet still in reach, and she answered with words because the mountain deserved clarity as much as the tent had.
-
-"Same as last night," she said. "Still my choice."
-
-He kissed her before moving.
-
-This time, the first pressure of him entering felt like recognition. Still intense. Still enough to make her grip his shoulders and breathe through the stretch. But her body knew the shape now. Wanted it. Opened around it with less fear and more hunger.
-
-Kevin held back until she cursed at him under her breath.
-
-He laughed once, strained. "Specific feedback helps."
-
-"Move."
-
-He moved.
-
-The summit became rock, wind, blanket, heat, his body over hers and then beside hers when they shifted to spare her hips, Kelsey's leg hooked around him, her hands learning how to ask without words. The privacy was imperfect enough to feel dangerous and secure enough to let her surrender to it. He watched her face when pleasure built, and she did not hide from him when it broke through.
 
 The summit made her bolder and less polished.
 
@@ -276,7 +260,7 @@ She locked her legs around him.
 
 "Inside," she said into his skin.
 
-That was all he needed.
+The word hit him harder than a command. Kelsey felt it in the way his whole body tightened, in the breath that left him rough against her throat, in the sudden loss of the careful rhythm he had been using to keep himself from taking more than she could meet.
 
 He drove into her deep and came with his face buried against her neck, body shaking, cock pulsing while Kelsey held him there and felt the hot mess of him spill into her again. This time she knew enough to feel the aftermath immediately: the slick fullness, the slow leak when he softened, the undeniable physical fact that would require wipes and care and would make Sam's questions later impossible to answer politely.
 
@@ -289,6 +273,50 @@ He laughed, wrecked, and shifted carefully beside her.
 The wind cooled the sweat between them.
 
 For a few seconds, they lay shoulder to shoulder, naked in daylight under an enormous sky, and neither of them tried to make the moment respectable.
+
+Then gravity began having opinions.
+
+Kelsey felt the first warm spill slide from her as soon as she moved her leg. It ran slowly, intimate and absurdly practical, down over swollen skin already sensitive from his mouth and fingers and the rough drag of him inside her. Her instinct was to close her thighs. Instead she laughed once, helpless and embarrassed, because closing her thighs only made the mess spread.
+
+Kevin turned his head.
+
+She covered her face with one hand. "Do not look like you are about to become useful."
+
+"I packed wipes up a mountain."
+
+"That is exactly the problem."
+
+He smiled, then reached for the packet without making her ask. The small domestic competence of it should not have been erotic after what they had just done. It was anyway. Kevin braced himself on one elbow, opened the packet with his teeth when one hand failed, and handed her a wipe first.
+
+Kelsey took it, then hesitated.
+
+There was no graceful way to clean cum from between her legs on a mountain blanket while the man who had put it there lay naked beside her with one hand still shaking.
+
+Kevin did not pretend otherwise.
+
+"Want me to turn around?"
+
+She looked at him through her fingers. "No."
+
+The answer surprised her less than it should have.
+
+She cleaned herself enough to stop the slow slide, wincing once where she was tender. Kevin saw the wince and did not make a speech out of it. He only passed her water, then another wipe, then used one on his own stomach and cock with a hiss when oversensitivity caught up to him.
+
+"Good?" she asked.
+
+He looked at her. "You asking me?"
+
+"Apparently we are both allowed one badly timed question."
+
+"Then yes. Good."
+
+The blanket had not escaped. A small wet mark darkened one corner near her hip. Kevin looked at it, then at the lake far below.
+
+"That is not coming out before camp," he said.
+
+"You carried it. You live with the consequences."
+
+"Fair."
 
 Afterward, the silence was not empty.
 

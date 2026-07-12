@@ -344,7 +344,13 @@ Kevin's grip tightened.
 
 He thrust harder, and she took it with a sound that made him lose the last of his careful rhythm. She reached back blindly. He caught her hand, pinned it against her lower stomach, and held her there while he fucked her under the hot water, jealousy and relief and love moving through him until they were impossible to separate.
 
-Sam came again with his hand between her legs and his cock deep inside her, smaller than the first orgasm but sharper, taking her by surprise. Her body clamped around him. Kevin lasted three more thrusts before he buried his face against her wet shoulder and came, spilling into her with a low sound that shook through both of them.
+The shower made everything more immediate and less graceful. His hips slipped once and found the rhythm again. Her palms squeaked against the tile. Water ran into her mouth when she tried to look back, and Kevin laughed breathlessly until she pushed back against him in warning. The laugh vanished. His hand tightened over hers, fingers spread low across her stomach, holding her in the exact place where each thrust made pleasure flare forward into his touch.
+
+Sam came again there, trapped between tile, water, and Kevin's body, smaller than the first orgasm but sharper, taking her by surprise. Her body clamped around him hard enough that his rhythm stuttered. He tried to stay with her through it. She felt the effort in the tremor of his thighs, in the way his mouth opened against her wet shoulder without sound at first.
+
+"Now," she said, because she wanted the choice to be hers too.
+
+Kevin lasted three more thrusts before he buried his face against her shoulder and came, spilling into her with a low sound that shook through both of them.
 
 They stayed braced against the tile until the water began to cool.
 

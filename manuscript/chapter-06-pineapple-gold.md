@@ -338,9 +338,13 @@ His hips moved.
 
 "Fuck me."
 
-Kevin did.
+Kevin did, but not as a blunt answer that skipped the feeling of it. He pulled almost all the way out first, slow enough to make her swear at him, then drove back in with a hard drag that made her shoulders push into the mattress and her mouth fall open. Sam liked the contradiction of him in moments like this: the same man who asked practical questions about jealousy and calendars could also know exactly when to stop being polite.
 
-The pace built from familiar to filthy. Not hurried, not polished. Their bed frame hit the wall once, then again, and Sam laughed until a harder thrust cut the sound off. Kevin caught her wrists and pinned them beside her head because she liked the weight when she trusted the hands holding her. She tested him once, just enough, and he loosened immediately.
+The next thrust rocked the bed into the wall.
+
+Sam laughed once, startled by the sound, and he caught the laugh in his mouth. He changed the angle without asking because he knew the arch of her back, knew the way her left knee climbed higher when he found the place that made her lose patience. Her body answered before her voice did. Hips up. Nails at his shoulder. Breath turning ragged in a rhythm he had earned over years, not guessed in one lucky night.
+
+The pace built from familiar to filthy. Not hurried, not polished. Their bed frame hit the wall again, and Sam's laugh broke into a moan when a harder thrust cut the sound off. Kevin caught her wrists and pinned them beside her head because she liked the weight when she trusted the hands holding her. She tested him once, just enough, and he loosened immediately.
 
 "No," she said. "Keep them there."
 
@@ -360,7 +364,9 @@ He followed her gaze to the earrings.
 
 Kevin's control broke in a way she felt through his whole body.
 
-He released her wrists and hauled her closer, one hand under her thigh, the other fisted in the sheet beside her head. His rhythm turned rougher, needier, less elegant. Sam loved him most when the careful man finally trusted her enough to be undone.
+He released her wrists and hauled her closer, one hand under her thigh, the other fisted in the sheet beside her head. His rhythm turned rougher, needier, less elegant. The bed stopped sounding funny. It sounded like effort now, like bodies and wood and breath pushed past the part where anyone could pretend this was only a symbolic reclamation. Sam felt him getting close in the loss of precision, in the way his hips started chasing instead of measuring, in the helpless sound he made when she clenched around him on purpose.
+
+She wanted that loss. Wanted the proof of it. Wanted him careful with her life and filthy with her body.
 
 "Inside," she said.
 
