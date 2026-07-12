@@ -75,7 +75,7 @@ For shaving/grooming scenes, keep the focus on body awareness, anticipation, tru
 
 The explicit standard is bodily, specific, and character-driven.
 
-Target the same level of adult intensity and physical specificity as the Alex project, but assistant-authored manuscript files should use local-expansion markers for graphic passages. The surrounding prose should still carry heat, buildup, body realism, aftercare, and emotional consequence so the marker has real context to expand from.
+Target the same level of adult intensity and physical specificity as the Alex project, with assistant-authored manuscript files carrying most intimate detail directly in prose. Optional local-expansion markers may remain only for narrow high-graphic choreography or continuity-protected expansion points.
 
 Include:
 
@@ -88,15 +88,17 @@ Include:
 
 Do not make every explicit scene the same kind of escalation. Use different engines: restraint, discovery, urgency, teasing, tenderness, mess, exhaustion, aftercare, or emotional confession.
 
-## Local Explicit Marker Protocol
+## Detail-Forward Explicit Protocol
 
-Assistant-authored manuscript files should keep explicit sexual passages as local-expansion markers rather than graphic prose.
+Assistant-authored manuscript files should draft most intimate detail directly on the page instead of outsourcing the scene to local expansion. This includes buildup, undressing, tactile body detail, active consent, escalating touch, bodily reaction, dialogue, emotional shifts, mess, cleanup, soreness, aftercare, and the consequences of what changed between the characters.
 
-Use hidden Markdown comments in this format:
+Use hidden Markdown comments only for the narrowest remaining high-graphic choreography when a later local pass is still desired, or when a scene needs a protected expansion note for continuity.
+
+Optional marker format:
 
 `<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Expand [scene purpose] here. Preserve [required canon/detail]. -->`
 
-These markers are source-visible but do not show in normal rendered Markdown. They should identify the purpose of the missing explicit material without writing graphic choreography.
+These markers are source-visible but do not show in normal rendered Markdown. They should not replace the whole scene. Surrounding prose should already carry the physical and emotional arc clearly enough that the marker is a small expansion point, not the chapter's core.
 
 The line `How's his cock?` is not a marker. It is story text and must remain verbatim.
 

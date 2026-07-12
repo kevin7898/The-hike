@@ -1,11 +1,11 @@
-# Manuscript Scaffold
+# Manuscript Draft
 
-This folder contains the revised 34-chapter FWB structure.
+This folder contains the revised 34-chapter FWB working draft.
 
-The files are not final full-length chapters yet. They are working draft spines: enough prose and scene logic to preserve the pivot, with hidden `LOCAL_AI_EXPLICIT` markers where graphic adult material should be expanded locally.
+The files now contain continuous prose rather than chapter spines. Hidden `LOCAL_AI_EXPLICIT` comments are optional expansion notes only; they should not replace the main emotional, physical, consent, cleanup, or aftermath work of a scene.
 
 Required preserved line:
 
 `How's his cock?`
 
-This line belongs in Chapter 17 and should not be softened.
+This line belongs in Chapter 24 and should not be softened.

@@ -9,5 +9,5 @@ This version is separate from `Long-Exposure`. It uses the outdoor-trip arc as t
 - `PROJECT_BIBLE.md` - canon, relationships, setting, and boundaries.
 - `ROADMAP.md` - chapter-by-chapter arc through the parsed Chapter 17 endpoint.
 - `DRAFTING_STANDARD.md` - style, pacing, sensual detail, and continuity rules.
-- `manuscript/` - revised 34-chapter FWB draft scaffold with local-expansion markers.
+- `manuscript/` - revised 34-chapter FWB working draft with optional local-expansion markers.
 - `planning/GROK_SHARE_PARSE.md` - source parse from the shared Grok conversation.

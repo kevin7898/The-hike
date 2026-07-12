@@ -7,7 +7,7 @@
 - Sam and Kelsey are both bi, but Sam is more settled in it.
 - Kevin/Kelsey pivots away from romance and toward friends with benefits.
 - First major Kevin/Kelsey physical threshold remains on the camping trip.
-- The camping trip gets enough room for Alex-level explicit density in local expansion.
+- The camping trip gets enough room for Alex-level adult density in detail-forward prose, with optional local expansion only for narrow high-graphic passes.
 - The story continues after the camping trip so the FWB choice lands instead of hanging unresolved.
 
 ## Act 1 - Friendship And Permission
@@ -108,7 +108,7 @@ Kelsey suggests the lake. They strip the last layer away from plausible deniabil
 
 ### Chapter 22 - The First Night
 
-The first major Kevin/Kelsey sexual threshold. Kelsey chooses it. Kevin stays careful. The scene must be explicit in local expansion and emotionally grounded in the manuscript.
+The first major Kevin/Kelsey sexual threshold. Kelsey chooses it. Kevin stays careful. The scene should carry the consent, physical detail, and aftermath directly in prose, with optional local expansion only for the narrowest graphic choreography.
 
 ### Chapter 23 - Morning After
 
@@ -124,7 +124,7 @@ The climb after Sam's text is looser, filthier, and more confident. Charged glan
 
 ### Chapter 26 - The Summit
 
-Kevin reveals the blanket, pillow, and wipes. The summit scene becomes a major local-expansion explicit beat with preparation, privacy, and no romance-label pressure.
+Kevin reveals the blanket, pillow, and wipes. The summit scene becomes a major detail-forward adult beat with preparation, privacy, and no romance-label pressure.
 
 ### Chapter 27 - The Island And The Fire
 
