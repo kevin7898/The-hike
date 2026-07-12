@@ -2,11 +2,11 @@
 
 ## Format
 
-Adult romantic/erotic novel built in multi-part chapters. All sexual characters are fictional consenting adults aged twenty-one or older.
+Adult erotic slow-burn novel built in multi-part chapters. All sexual characters are fictional consenting adults aged twenty-one or older.
 
 ## Logline
 
-Kelsey, Sam's best friend, begins an innocent hiking-and-photography friendship with Kevin while he remains in a committed open relationship with Sam. Repeated hikes, private texts, and slow-building trust turn that friendship into desire, forcing all three of them to decide how honesty, jealousy, loyalty, and sexual freedom can coexist.
+Kelsey, Sam's best friend, begins an innocent hiking-and-photography friendship with Kevin while he remains in a committed open relationship with Sam. Repeated hikes, private texts, and slow-building trust turn that friendship into desire, but the real question is not whether Kevin and Kelsey become a couple. It is whether they can build a filthy, honest, emotionally safe friends-with-benefits dynamic without damaging what Sam and Kelsey already mean to each other.
 
 ## Setting
 
@@ -29,19 +29,23 @@ Recurring locations include:
 
 Kevin and Sam are established partners living together. Their relationship is loving, domestic, sexually open, and emotionally complicated in the way openness actually is: supportive, jealous, playful, and vulnerable at the same time.
 
-Sam can date and sleep with other people. Kevin knows the high-level details in real time and hears more intimate details afterward when they reconnect. Their reclaiming dynamic is part of their established sex life.
+Sam is confidently bi and sexually direct. She can date and sleep with other people. Kevin knows the high-level details in real time and hears more intimate details afterward when they reconnect. Their reclaiming dynamic is part of their established sex life.
 
 ### Kelsey and Sam
 
 Kelsey and Sam are best friends. Kelsey values the friendship deeply and does not want her attraction to Kevin to cost her Sam. Sam's support matters, but so does Sam's jealousy.
 
+Kelsey is bi, but less settled in it than Sam. She has noticed women, wanted women, and sometimes wanted Sam in ways she did not fully examine because the friendship mattered too much to risk. That tension should be seeded quietly before it is named.
+
 ### Kevin and Kelsey
 
 Kevin and Kelsey start as friends orbiting Sam. Their bond builds through texting, photography, repeated hikes, body language, and ordinary time. The early story must not rush guilt or sexual certainty. Kelsey should spend several chapters experiencing the connection as friendship before attraction becomes undeniable.
 
+The pivot is friends with benefits, not romance. Kevin and Kelsey care about each other, trust each other, and keep choosing each other physically, but they do not frame the dynamic as a second committed partnership.
+
 ### The Three Of Them
 
-The story is not a triad at this stage. It is Kevin/Sam as the established couple, Kevin/Kelsey as the developing separate relationship, and Sam/Kelsey as the friendship that must survive the change.
+The story is not a triad at this stage. It is Kevin/Sam as the established couple, Kevin/Kelsey as the developing FWB connection, and Sam/Kelsey as the charged friendship that must survive the change.
 
 ## Core Canon
 
@@ -59,11 +63,16 @@ The story is not a triad at this stage. It is Kevin/Sam as the established coupl
 - Sam backs out of the camping trip so Kevin and Kelsey can go alone.
 - The no-condom baseline is discussed before the trip through testing, sexual-health trust, and explicit consent.
 - Kelsey has not had sex in a couple of years after a hard previous relationship.
+- Sam is confidently bi.
+- Kelsey is bi but still privately sorting what that means, especially around Sam.
 - First sex between Kevin and Kelsey happens during the camping trip.
+- Sam's text, `How's his cock?`, must remain verbatim.
+- Sam's text is a hinge: it breaks Kelsey's guilt spiral, proves Sam is still present, and pushes the story toward honest FWB instead of accidental romance.
+- The ending should clarify Kevin and Kelsey as emotionally safe FWB, not a formal second relationship.
 
 ## Emotional Spine
 
-Kelsey begins by enjoying attention that feels safe because it is indirect: photos, hikes, texts, glances, and Kevin's patience. She gradually realizes she wants the attention to become personal and physical. The climax of the early novel is not just sex; it is Kelsey discovering that she can want Kevin, still love Sam, and speak honestly about both.
+Kelsey begins by enjoying attention that feels safe because it is indirect: photos, hikes, texts, glances, and Kevin's patience. She gradually realizes she wants the attention to become personal and physical. The climax is not just sex; it is Kelsey discovering that she can want Kevin, still love Sam, want Sam differently than she has admitted, and choose a clear FWB arrangement without pretending it is simpler than it is.
 
 ## Explicitness Spine
 
@@ -79,6 +88,6 @@ The explicit material should grow from character and situation:
 
 ## Current Parsed Endpoint
 
-The Grok conversation reaches Chapter 17 - Part 1 on Day 3 of the camping trip. Kevin and Kelsey are in the tent on their last morning before packing up camp, hiking down, and driving home.
+The parsed Grok conversation reaches Chapter 17 - Part 1 on Day 3 of the camping trip. The revised structure expands the unfinished return-home material into a 34-chapter arc.
 
-The next planned beat is Chapter 17 - Part 2: one more intimate morning moment, a lake bath with lake-safe soap, camp breakdown, and emotional closure on the way out.
+The revised ending should not stop at the campsite. It should follow Kelsey home, let her talk with Sam, let Kevin reconnect with Sam, and define Kevin/Kelsey as FWB before the final beat proves the arrangement can continue.

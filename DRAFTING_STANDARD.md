@@ -75,6 +75,8 @@ For shaving/grooming scenes, keep the focus on body awareness, anticipation, tru
 
 The explicit standard is bodily, specific, and character-driven.
 
+Target the same level of adult intensity and physical specificity as the Alex project, but assistant-authored manuscript files should use local-expansion markers for graphic passages. The surrounding prose should still carry heat, buildup, body realism, aftercare, and emotional consequence so the marker has real context to expand from.
+
 Include:
 
 - saliva, wet skin, sweat, lake water, and sex mess where appropriate;
@@ -85,6 +87,18 @@ Include:
 - direct language when the scene's tone calls for it.
 
 Do not make every explicit scene the same kind of escalation. Use different engines: restraint, discovery, urgency, teasing, tenderness, mess, exhaustion, aftercare, or emotional confession.
+
+## Local Explicit Marker Protocol
+
+Assistant-authored manuscript files should keep explicit sexual passages as local-expansion markers rather than graphic prose.
+
+Use hidden Markdown comments in this format:
+
+`<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Expand [scene purpose] here. Preserve [required canon/detail]. -->`
+
+These markers are source-visible but do not show in normal rendered Markdown. They should identify the purpose of the missing explicit material without writing graphic choreography.
+
+The line `How's his cock?` is not a marker. It is story text and must remain verbatim.
 
 ## Consent And Continuity
 
@@ -97,6 +111,7 @@ For this continuity:
 - Kelsey should remain active in choosing what happens;
 - Kevin's restraint should feel like effort, not indifference;
 - aftercare should match the emotional size of the scene.
+- Kevin and Kelsey end as friends with benefits, not a formal romantic couple.
 
 ## Sam
 
@@ -104,11 +119,15 @@ Sam is not a plot obstacle or a permission machine. She should feel like a full 
 
 When Sam supports Kevin and Kelsey, the writing should still leave room for the cost of that support.
 
+Sam is confidently bi. Kelsey is bi but less settled in it. Their tension should not force an immediate triad; it should deepen the friendship and complicate Kelsey's sense of what she wants.
+
 ## Current Next Beat
 
-The next unwritten beat from the parsed Grok thread is Chapter 17 - Part 2:
+The revised story continues beyond the parsed Grok endpoint. The key unfinished beats are:
 
-- Kevin and Kelsey have limited time before breaking camp.
-- The morning should include one more intimate beat.
-- They bathe in the lake with lake-safe soap.
-- They pack, hike down, and leave the campsite with the emotional weight of the trip landing.
+- Sam's `How's his cock?` text as the FWB hinge.
+- The lake bath with lake-safe soap.
+- The drive home.
+- Sam/Kelsey processing.
+- Sam/Kevin processing.
+- Kevin/Kelsey defining the arrangement as FWB.
