@@ -49,8 +49,10 @@ fallback prose to replace
 
 When running a local rewrite, replace only the prose inside each matching pair unless you explicitly request a full-chapter rewrite. Multiple marker pairs can appear in one scene.
 
+`MARKER_FILL_GUIDE.md` is the standalone guide to feed into another local AI. The helper script includes it automatically.
+
 ## Notes
 
 - Base model: `mistral-nemo:latest`, already installed locally.
 - Recommended on this machine: keep `num_ctx` at `8192` unless you confirm larger contexts fit comfortably in VRAM.
-- The helper automatically includes `DRAFTING_STANDARD.md`, `PROJECT_BIBLE.md`, and `ROADMAP.md`.
+- The helper automatically includes `MARKER_FILL_GUIDE.md`, `DRAFTING_STANDARD.md`, `PROJECT_BIBLE.md`, and `ROADMAP.md`.

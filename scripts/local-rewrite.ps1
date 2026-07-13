@@ -37,10 +37,12 @@ $chapterPath = Resolve-RepoPath $Chapter
 $standardPath = Join-Path $repoRoot "DRAFTING_STANDARD.md"
 $biblePath = Join-Path $repoRoot "PROJECT_BIBLE.md"
 $roadmapPath = Join-Path $repoRoot "ROADMAP.md"
+$markerGuidePath = Join-Path $repoRoot "MARKER_FILL_GUIDE.md"
 
 $standard = Get-Content -LiteralPath $standardPath -Raw
 $bible = if (Test-Path -LiteralPath $biblePath) { Get-Content -LiteralPath $biblePath -Raw } else { "" }
 $roadmap = if (-not $NoRoadmap -and (Test-Path -LiteralPath $roadmapPath)) { Get-Content -LiteralPath $roadmapPath -Raw } else { "" }
+$markerGuide = if (Test-Path -LiteralPath $markerGuidePath) { Get-Content -LiteralPath $markerGuidePath -Raw } else { "" }
 $chapterText = Get-Content -LiteralPath $chapterPath -Raw
 
 $styleBlock = ""
@@ -65,6 +67,9 @@ Instruction:
 $Instruction
 
 $markerInstructions
+
+Marker fill guide:
+$markerGuide
 
 Project drafting standard:
 $standard
