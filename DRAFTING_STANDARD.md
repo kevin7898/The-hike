@@ -96,13 +96,35 @@ Kevin is average-sized, uncut, and keeps his shaft and balls shaved. Do not desc
 
 Assistant-authored manuscript files should draft most intimate detail directly on the page instead of outsourcing the scene to local expansion. This includes buildup, undressing, tactile body detail, active consent, escalating touch, bodily reaction, dialogue, emotional shifts, mess, cleanup, soreness, aftercare, and the consequences of what changed between the characters.
 
-Use hidden Markdown comments only for the narrowest remaining high-graphic choreography when a later local pass is still desired, or when a scene needs a protected expansion note for continuity.
+Use hidden Markdown comments only for local-only expansion ranges or protected continuity notes.
 
-Optional marker format:
+Replacement marker format:
 
-`<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Expand [scene purpose] here. Preserve [required canon/detail]. -->`
+```md
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="stable-id" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: [scene purpose].
+Preserve: [required canon/detail].
+Resume cleanly at: "[next fixed line or marker]".
+-->
 
-These markers are source-visible but do not show in normal rendered Markdown. They should not replace the whole scene. Surrounding prose should already carry the physical and emotional arc clearly enough that the marker is a small expansion point, not the chapter's core.
+[fallback prose to replace]
+
+<!-- LOCAL_AI_EXPLICIT_END id="stable-id" -->
+```
+
+Insert-only marker format:
+
+```md
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="stable-id" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: [scene purpose].
+Preserve: [required canon/detail].
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="stable-id" -->
+```
+
+These markers are source-visible but do not show in normal rendered Markdown. Text between a `LOCAL_AI_EXPLICIT_BEGIN` and matching `LOCAL_AI_EXPLICIT_END` is fallback prose intended for local replacement. Multiple marker pairs may appear in one scene; each pair should be replaceable independently without changing unmarked continuity text.
 
 The line `How's his cock?` is not a marker. It is story text and must remain verbatim.
 

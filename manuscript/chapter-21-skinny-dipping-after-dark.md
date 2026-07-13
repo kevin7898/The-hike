@@ -182,4 +182,9 @@ She turned and kissed him once, hard enough to answer.
 
 Then she unzipped the tent and went in first.
 
-<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Optional local pass may extend the naked lake escalation, but preserve Kelsey's invitation, first kiss, Kevin's restraint, and the move toward the tent. -->
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch21-naked-lake-escalation" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: extend the naked lake escalation.
+Preserve: Kelsey's invitation, first kiss, Kevin's restraint, and the move toward the tent.
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="ch21-naked-lake-escalation" -->

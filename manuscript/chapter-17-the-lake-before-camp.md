@@ -214,4 +214,9 @@ Kevin lifted his pack.
 
 This time, his voice made them both laugh.
 
-<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Optional local pass may add more wet-clothing and body-awareness detail here, but preserve restraint and stop short of full sex. -->
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch17-lake-wet-clothing-restraint" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: add more wet-clothing and body-awareness detail.
+Preserve: restraint; stop short of full sex; keep Kevin attentive but not pushing.
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="ch17-lake-wet-clothing-restraint" -->

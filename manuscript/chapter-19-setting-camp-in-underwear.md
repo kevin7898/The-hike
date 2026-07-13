@@ -150,4 +150,9 @@ Kelsey hugged her knees to her chest, pleased and terrified by the power of a se
 
 The tent stood behind them, patient as a held breath.
 
-<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Optional local pass may add more teasing/body-display detail during camp setup. Preserve Kelsey's control and Kevin's restraint. -->
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch19-camp-underwear-teasing" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: add more teasing/body-display detail during camp setup.
+Preserve: Kelsey's control, Kevin's restraint, camp logistics, and the slow-burn escalation.
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="ch19-camp-underwear-teasing" -->

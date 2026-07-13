@@ -136,4 +136,9 @@ She told herself it was because she wanted to look at the branches.
 
 For now, that was close enough to true.
 
-<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Optional local pass may deepen the private Sam/Kevin adult beat. Keep it about established intimacy, not Kelsey yet. -->
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch01-sam-kevin-private-beat" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: deepen the private Sam/Kevin adult beat.
+Preserve: established intimacy only; do not involve Kelsey physically; keep it emotionally anchored to Kevin and Sam's existing relationship.
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="ch01-sam-kevin-private-beat" -->

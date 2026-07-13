@@ -314,6 +314,13 @@ She shifted her hips back against him. "I want you inside me."
 
 "Then hold on."
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch07-shower-reconnect" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the shower reconnection after Sam asks for Kevin inside her.
+Preserve: Sam came home to Kevin by choice; Ryan used a condom and did not finish inside her; Kevin reads Sam's body and adjusts to the shower logistics; Kevin is average-sized, uncut, shaved shaft/balls; keep cleanup intimate and practical.
+Resume cleanly at: "They stayed braced against the tile until the water began to cool."
+-->
+
 He laughed once, wrecked and unbelieving, then reached to adjust the water so it would not beat directly into her face. Practical, even now. Sam loved him for it and wanted to throttle him for making her softer while she was trying to be filthy.
 
 When he pushed into her from behind, both of them went quiet.
@@ -351,6 +358,8 @@ Sam came again there, trapped between tile, water, and Kevin's body, smaller tha
 "Now," she said, because she wanted the choice to be hers too.
 
 Kevin lasted three more thrusts before he buried his face against her shoulder and came, spilling into her with a low sound that shook through both of them.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch07-shower-reconnect" -->
 
 They stayed braced against the tile until the water began to cool.
 

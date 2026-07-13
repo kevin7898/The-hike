@@ -338,7 +338,16 @@ His hips moved.
 
 "Fuck me."
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch06-sam-kevin-bedroom" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the established Sam/Kevin bedroom sequence after Sam's command.
+Preserve: Sam is actively choosing the tone; Kevin is jealous but not possessive; Kevin is average-sized, uncut, shaved shaft/balls; the earrings remain visible on the bedside table; no monster-size framing.
+Resume cleanly at: "The next thrust rocked the bed into the wall."
+-->
+
 Kevin did, but not as a blunt answer that skipped the feeling of it. He pulled almost all the way out first, slow enough to make her swear at him, then drove back in with a hard drag that made her shoulders push into the mattress and her mouth fall open. Sam liked the contradiction of him in moments like this: the same man who asked practical questions about jealousy and calendars could also know exactly when to stop being polite.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch06-sam-kevin-bedroom" -->
 
 The next thrust rocked the bed into the wall.
 

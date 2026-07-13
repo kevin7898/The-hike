@@ -200,6 +200,13 @@ Kevin smiled against her mouth.
 
 She hooked one leg around his hip and drew him closer.
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch26-summit-daylight-sex" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the summit daylight sex sequence.
+Preserve: Kevin carried blanket, pillow, wipes, and condoms but does not treat preparation as entitlement; Kelsey chooses no condom again; Kevin is average-sized, uncut, shaved shaft/balls; any slow pacing comes from tenderness, exposure, climb fatigue, and emotional intensity, not size.
+Resume cleanly at: "Kevin tried to slow."
+-->
+
 He entered her slower than she wanted and exactly as slowly as her body needed. The night before had left its trace. So had morning. So had the climb. Kelsey felt him more vividly in daylight, each slow push and pause made sharper by tenderness, exposure, and the fact that she could see his face while he held back. Her hands gripped his shoulders. His skin was hot from sun and exertion.
 
 When he was settled inside her, she closed her eyes.
@@ -254,6 +261,8 @@ He chased that reaction. Hand between them, thumb finding her while his cock mov
 
 When it broke, it was not pretty. Her hips bucked. Her mouth opened against his shoulder. She came around him hard enough that he groaned like he was hurt, and that sound kept the orgasm rolling, dirty and bright and too much.
 
+<!-- LOCAL_AI_EXPLICIT_END id="ch26-summit-daylight-sex" -->
+
 Kevin tried to slow.
 
 She locked her legs around him.
@@ -298,6 +307,13 @@ She let her hand fall back to the blanket.
 
 Kevin read that before she found words. He shifted closer, careful of the sore places he had already learned, and brought the wipe between her thighs himself. The first touch made her inhale sharply. He stopped there, not asking, just waiting with his eyes on her face until her knees eased open again.
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch26-summit-kevin-cleans-kelsey" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen Kevin cleaning Kelsey himself on the summit.
+Preserve: this is aftercare, not entitlement; Kelsey permits it through body language; Kevin reads tenderness and pauses when needed; focus on care, embarrassment, mess, wipes, water, and the open-air setting; keep the campsite/Leave No Trace practicalities intact.
+Resume cleanly at: "Afterward, the silence was not empty."
+-->
+
 Then he cleaned her.
 
 Not clinically. Not like he was erasing evidence. He wiped the slow spill from swollen skin with a gentleness that made her throat tighten, folding the wipe to a clean side before touching her again. Kelsey kept one hand over her eyes and the other fisted in the blanket while he worked, embarrassed and turned on and touched so deeply by the care of it that she did not know which feeling belonged on top.
@@ -325,6 +341,8 @@ The blanket had not escaped. A small wet mark darkened one corner near her hip. 
 "You carried it. You live with the consequences."
 
 "Fair."
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch26-summit-kevin-cleans-kelsey" -->
 
 Afterward, the silence was not empty.
 

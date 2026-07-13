@@ -216,6 +216,13 @@ The pressure broke something open.
 
 He stayed exactly there.
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch23-morning-body-learning" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the morning-after body-learning sequence.
+Preserve: Kelsey is tender from the night before but actively wanting this; Kevin reads sensitivity and adjusts without repeated verbal check-ins; keep it daylight, exposed, intimate, and slightly embarrassing; Kevin is average-sized, uncut, shaved shaft/balls.
+Resume cleanly at: "Then he kissed his way up her stomach..."
+-->
+
 Pleasure built differently this time, less sudden than the night before, more exposed. She could feel it gathering under his tongue, around his finger, in the muscles of her stomach and thighs. Her hand tightened on her own breast. Her other hand fisted in his hair. He took the pull as direction and gave her more pressure, more heat, more of the obscene patience that made her body feel translated.
 
 "I am going to come," she said, shocked by herself.
@@ -225,6 +232,8 @@ Kevin did not lift his head to answer.
 Good.
 
 He curled his finger inside her, and the orgasm hit before she had another sentence. Kelsey came with a broken sound that turned into his name halfway through, hips jerking against his mouth, thighs clamping around his shoulders until he had to hold her open and ride it out with her. He kept his tongue gentle through the aftershocks, not stopping too early, not pushing into pain, reading the moment her body changed from hungry to oversensitive.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch23-morning-body-learning" -->
 
 Then he kissed his way up her stomach, leaving wet warmth in scattered places, and rested his cheek against her hip.
 

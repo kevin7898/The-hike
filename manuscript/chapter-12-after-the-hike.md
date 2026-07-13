@@ -176,4 +176,9 @@ She wanted it without wanting Sam gone.
 
 Kelsey wiped steam from the mirror with her palm and looked at herself until she stopped flinching.
 
-<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Optional local pass may deepen this solo body-awareness beat without making it a full explicit scene. Tie it to Kelsey's realization that she wants Kevin physically. -->
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch12-kelsey-solo-body-awareness" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: deepen this solo body-awareness beat without making it a full explicit scene.
+Preserve: tie the beat to Kelsey's realization that she wants Kevin physically; keep it private, reflective, and not yet acted on with Kevin.
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="ch12-kelsey-solo-body-awareness" -->

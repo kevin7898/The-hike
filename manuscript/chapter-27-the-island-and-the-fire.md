@@ -234,6 +234,13 @@ She looked at him when he came back up, his mouth wet and his expression ruined.
 
 "Your turn," she said.
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch27-second-night-kelsey-on-top" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the second-night Kelsey-on-top sequence.
+Preserve: this is discovery, play, and trust after the summit; Kelsey controls angle, pace, and timing; Kevin is average-sized, uncut, shaved shaft/balls; any pause comes from tenderness/fatigue/positioning, not size; keep tent logistics and laughter.
+Resume cleanly at: "Cleanup was clumsy and intimate..."
+-->
+
 Kevin made a sound that was almost a laugh. "My turn?"
 
 "Yes."
@@ -313,6 +320,8 @@ Kevin touched her knee, giving her a way out.
 Kelsey stayed where she was for three more breaths.
 
 "Okay," she said finally, voice small and amused and wrecked. "Now towel."
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch27-second-night-kelsey-on-top" -->
 
 Cleanup was clumsy and intimate in a way that made the sex feel more real rather than less. The damp towel was indeed sacrificed. Wipes passed back and forth. Kelsey shifted onto her side while Kevin cleaned his stomach, then let him help clean her thigh when the angle made her hip complain. No one pretended not to see the mess. No one made it symbolic. It was simply theirs to handle.
 

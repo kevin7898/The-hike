@@ -276,6 +276,13 @@ He kissed down her body before she could answer, and the joke dissolved. Sam had
 
 That was enough.
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch33-sam-kevin-familiar-knowledge" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen Kevin proving familiar knowledge with Sam after the trip.
+Preserve: Sam's jealousy, arousal, and primary relationship status all coexist; this is not a comparison contest with Kelsey even when Sam asks sharp questions; Kevin is average-sized, uncut, shaved shaft/balls; keep Sam active and commanding.
+Resume cleanly at: "Sam lay panting..."
+-->
+
 He put his mouth on her.
 
 Sam's head fell back. Familiar did not mean soft. His tongue knew her, and that knowledge felt almost indecent after the weekend apart. He did not have to discover what made her hips lift; he remembered. He did not have to ask how much pressure; her body had taught him for years and he came back to the lesson like a man grateful for the text. Sam's jealousy twisted under the pleasure until she could not tell whether she was aching because Kelsey had had him or because Kevin was proving that no one else's newness erased what he knew here.
@@ -305,6 +312,8 @@ Sam came fast, faster than she expected, anger and relief and need collapsing in
 He stopped immediately.
 
 That, too, was theirs.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch33-sam-kevin-familiar-knowledge" -->
 
 Sam lay panting, one arm over her eyes. "I hate you."
 
@@ -408,6 +417,13 @@ Her eyes burned.
 
 "Shut up and fuck me."
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch33-sam-kevin-reclaiming" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the Sam/Kevin reclaiming sequence after Sam's command.
+Preserve: established couple body knowledge; jealousy without ownership; Kevin remains honest about Kelsey; Sam remains primary and actively chooses the rougher tone; Kevin is average-sized, uncut, shaved shaft/balls; cleanup afterward remains tender and emotionally meaningful.
+Resume cleanly at: "Sam cried then."
+-->
+
 He laughed, then did exactly that, giving her the force she had asked for without losing the map of her. The first hard thrust pushed a sound out of her that was half sob, half laugh. The second drove her higher on the bed until she had to hook one hand around the edge of the headboard. Kevin caught her hip and pulled her back down onto him, not gentle, not careless, exactly the balance she needed.
 
 The rhythm turned rougher. Sam met him stroke for stroke, using the strength in her legs, the tilt of her hips, the old knowledge of how to make him lose language. When she rolled up into him at the end of a thrust, his eyes went unfocused. When she tightened around him and whispered his name like an accusation, his mouth opened and no answer came out. She loved that face. Loved the familiarity of it. Loved that Kelsey could have newness and Sam could still have this: the exact moment his careful mind surrendered because Sam knew where to put her body under his.
@@ -441,6 +457,8 @@ He broke.
 Sam felt the break before she heard it. His hips lost their rhythm, then found one final rough drive into her. Her orgasm hit at the same time, not perfectly, not prettily, but close enough that his release became part of hers. She came first by half a breath, clenching around him, pulling him over because her body knew him too well to let him stay apart from it.
 
 Kevin buried himself deep and came inside her with a sound that made her hold him tighter. Heat spread through her, familiar and intimate, no barrier, no distance, the reclaiming not of property but of return. He pulsed in her while she shook under him, and Sam kept her legs locked because she wanted every messy second of it before language came back and made them complicated again.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch33-sam-kevin-reclaiming" -->
 
 Sam cried then.
 

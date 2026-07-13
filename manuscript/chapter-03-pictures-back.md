@@ -158,4 +158,9 @@ Sam:
 
 Kelsey stared, then laughed because Sam knew her too well and not nearly enough.
 
-<!-- LOCAL_AI_EXPLICIT: Consenting adults 21+. Optional local pass may add a Sam/Kevin interlude to keep their relationship alive on-page. Do not involve Kelsey physically. -->
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch03-sam-kevin-interlude" action="insert_or_replace"
+REPLACE THIS MARKER PAIR WITH LOCAL-ONLY PROSE, OR INSERT PROSE BETWEEN BEGIN/END AND KEEP THE MARKERS WHILE DRAFTING.
+Local-only expansion point: add a Sam/Kevin interlude to keep their relationship alive on-page.
+Preserve: established intimacy only; do not involve Kelsey physically; keep the scene consistent with Sam and Kevin's open relationship.
+-->
+<!-- LOCAL_AI_EXPLICIT_END id="ch03-sam-kevin-interlude" -->

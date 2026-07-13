@@ -158,6 +158,13 @@ Because she wanted to hear herself say it while holding him.
 
 Kevin kissed her with a sound that was almost pain. His fingers slid back between her thighs, slicking through the wet he had already pulled from her, then deeper, careful but no longer timid. Kelsey arched under him. The tent wall brushed her shoulder. Her foot knocked the water bottle, sending it rolling into the corner, and neither of them cared.
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch22-body-learning-before-first-penetration" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen Kevin learning Kelsey's body before first penetration.
+Preserve: this is Kelsey's first major threshold with Kevin; Kevin reads body language instead of turning it into a questionnaire; Kelsey remains active and increasingly vocal; no size-difficulty framing; Kevin is average-sized, uncut, shaved shaft/balls.
+Resume cleanly at the next marker pair.
+-->
+
 He made her come once before he entered her, and the first time was not elegant.
 
 It started with his fingers learning the wet heat of her in careful passes, not pushing inside too soon, not treating slickness as permission to rush. He stroked through her folds until his fingertips shone in the lantern light and Kelsey stopped kissing him because she needed all her breath for the next touch. When he found the place that made her hips twitch, he did not stay there like a man proud of discovery. He circled away, returned softer, then pressed again when her thighs opened wider.
@@ -203,6 +210,15 @@ His mouth touched her stomach. "Understood."
 But he was smiling.
 
 She pulled him up by the shoulders and kissed the smile off his face.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch22-body-learning-before-first-penetration" -->
+
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch22-first-no-condom-penetration" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the no-condom first penetration and first-night rhythm.
+Preserve: Kelsey explicitly chooses no condom; Kevin waits for her body and cues; any discomfort comes from nerves, tenderness, angle, and intensity, not oversized anatomy; Kevin is average-sized, uncut, shaved shaft/balls; Kelsey remains emotionally aware of Sam without turning the scene into romance.
+Resume cleanly at: "When it ended, it did not feel clean."
+-->
 
 After the condom conversation, after the clear words and the choice she refused to make vague, the mood changed again. Not colder. Sharper. Kevin positioned himself over her with one forearm beside her head and the other hand guiding himself between her thighs. Kelsey watched him look down, watched his control thin when the head of his cock slid through her wetness and nudged against her.
 
@@ -318,6 +334,8 @@ His forehead touched hers. "Perfect. Terrible. Perfect."
 
 She smiled, dazed and shaking. "Good."
 
+<!-- LOCAL_AI_EXPLICIT_END id="ch22-first-no-condom-penetration" -->
+
 When it ended, it did not feel clean.
 
 It felt wet, hot, shaking, human. Kevin stayed close but not heavy, breathing hard against her shoulder. Kelsey's thighs trembled. Her body held him for a few seconds after movement stopped, then released in small aftershocks that made her close her eyes and press her face into his neck.
@@ -336,6 +354,13 @@ He kissed her shoulder, then eased away with care that made her wince anyway.
 
 "I don't think so."
 
+<!-- LOCAL_AI_EXPLICIT_BEGIN id="ch22-first-night-cleanup" action="replace"
+REPLACE EVERYTHING BETWEEN THIS BEGIN MARKER AND THE MATCHING END MARKER.
+Local-only expansion point: deepen the first-night aftermath and practical cleanup.
+Preserve: no-condom aftermath is emotionally significant; Kevin is careful and body-aware; Kelsey may be embarrassed but not distressed; aftercare includes wipes, water, soreness, and the tent's physical reality; keep Sam present as emotional context, not as a voyeur.
+Resume cleanly at: "Only then did the guilt come looking for her."
+-->
+
 He reached for the wipes with one hand and the water bottle with the other. The practical care undid her more than the sex nearly had. He cleaned his hand first, then offered her the pack without assuming she wanted him to do it. She took a wipe, then let him hold the lantern angled away while she cleaned herself under the quilt, laughing once because modesty had returned at an absurd time.
 
 "Do not look so respectful," she said.
@@ -347,6 +372,8 @@ He reached for the wipes with one hand and the water bottle with the other. The 
 He grinned, exhausted and beautiful in the low light.
 
 They drank water. Kevin checked the bedding. Kelsey found her sleep shirt and put it on because she wanted softness between her skin and the cooling air. He pulled on boxers. They arranged the quilt and sleeping bag into something that covered both of them badly but warmly enough.
+
+<!-- LOCAL_AI_EXPLICIT_END id="ch22-first-night-cleanup" -->
 
 Only then did the guilt come looking for her.
 
